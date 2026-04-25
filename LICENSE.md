@@ -1,4 +1,4 @@
-
+Experience evade like never before with evade hidden Scripts, the #1 Script. Includes anti-ban and god mode for unbeatable performance.
 
 
 
